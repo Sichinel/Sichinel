@@ -7,5 +7,7 @@ Meus hobbies são jogar video game 🎮, mexer no celular 📱, fazer esportes �
 Gosto de educação fisíca.
 ### Se quiser entrar em contato comigo mandar email ao augustosichinel@gmail.com
 Minhas redes sociais são:
+
 Instagram:@Sichinel_
+
 Twitter:@Sichinel_
