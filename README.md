@@ -1,4 +1,4 @@
-## Olá, eu sou @Sichinel, Augusto Sichinel de Freitas, tenho 16 anos, sou do Rio Grande do Sul, Santa Maria, sou estudante e torço para o Grêmio.
+## Olá, eu sou @Sichinel, Augusto Sichinel de Freitas, tenho 17 anos, sou do Rio Grande do Sul, Santa Maria, sou estudante e torço para o Grêmio.
 ### O que estou aprendendo? 👀
 Estou cursando o ensino médio integrado ao técnico de informática no CTISM, aprendi sobre programação.
 ### Quais são meu hobbies? 🎨
